@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JaganJ0
-- 👀 I’m interested in ...Learn New TECH
+- 👀 I’m interested in ...Learning New TECH
 - 🌱 I’m currently learning ...WebDevelopment
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...jaganjaguar567@gmail.com
